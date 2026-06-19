@@ -1,0 +1,2 @@
+# cocucka
+BOUHA C COCUCKOU, KET4UnOM U BU/\KOU
